@@ -1,0 +1,1 @@
+Good grooming are the things we do to ensure acceptance confidence in communication likewise influence our carriage. Some pointers to poor or no grooming are mouth odour, body odour, unkempt hair, tardy dressing, no use of deodorants, roll-on, perfume, nist or cologne. Good grooming starts form our hair to head and down to our toe nails.
